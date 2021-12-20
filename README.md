@@ -1,2 +1,2 @@
 # The-Bad-Mod
-the jellyfish uprizing 2022
+the jellyfish uprizing of 2022
